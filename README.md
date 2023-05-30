@@ -2,5 +2,5 @@
 
 Membres du groupe 
 
-Libasse Laye MBENGUE
+Libasse Laye MBENGUE &
 Pape Malick THIOUNE
